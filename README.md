@@ -6,7 +6,7 @@ THE MIDI FILES IN THIS PACK ARE FREE, BUT NOT ROYALTY FREE!
 
 
 
-The terms are 50/50 on everything including publishing, credit, royalties etc. (Major Label or not, this still applies).
+The terms are 25/75 (for you) on everything including publishing, credit, royalties etc. (Major Label or not, this still applies).
 
 
 Production credit must be given in the title (Prod. *Yourname* x johnnyfriend)
