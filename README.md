@@ -19,9 +19,7 @@ Major placements require sample clearance by DMing or mailing me "johnnyfriendmu
 
 
 
-You must add johnnyfriend as a collaborator for 50% on Beatstars.
-
-If collaborated loops are used it should be split 50% for you 25% for johnnyfriend and 25% for the other producer
+You must add johnnyfriend as a collaborator for 25% on Beatstars.
 
 
 (Beatstars: https://www.beatstars.com/johnnyfriend/feed)
