@@ -1,5 +1,5 @@
-# free-midi-pack
-Enjoy!
+# johnnyfriend midi pack
+Make sure you star becuase I will be continually updating this respository.
 
 ## Terms of Use
 THE MIDI FILES IN THIS PACK ARE FREE, BUT NOT ROYALTY FREE!
